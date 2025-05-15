@@ -1,5 +1,7 @@
-<h2>I am just like a caterpillar like a caterpillar is just like me &#127927;&#128027;</h2>
 <p>
+<b><i>I am just like a caterpillar like a caterpillar is just like me &#127927;&#128027;</i></b>
+</br>
+</br>
 <b>If you did not know</b> This GitHub profile has been around for quite a bit, though inactive as of typing for as far as you can see yet quite active for as far as you cannot <i>yet</i> see. Be patient and fruits will be falling at a rate you cannot make up for. And they are juicy too!
 </br>
 </br>
