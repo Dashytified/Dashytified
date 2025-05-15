@@ -7,4 +7,5 @@
 </br>
 <b>For my creatures out there</b> Life as it is to whomever may have been confident enough to convince themselves of being able to encapsulate life; is implying no more more than a pursuit of/for proclamative construct formed out of life itself that is the expression thereof. The source of all existence for as far as existence goes, is existence as per to whomever existence is existence. The value of life is a given by life. The value of the existence of value itself is a given by existence. The existence of what values. Value is life. Life is value. Appreciate. Be contentious. Remain calm. Collected.
 </br>
+</br>
 <img src='https://www.bruceclay.com/wp-content/uploads/2020/07/caterpillar-1200px.jpg' />
